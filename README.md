@@ -1,1 +1,1 @@
-# potencia-tech-hackathon-2023
+# Potencia tech hackathon -2023
